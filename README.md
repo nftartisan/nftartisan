@@ -1,4 +1,4 @@
-- 👋 Hi, We are @nftartisan, a group of artist and cultural theorists. In addition to see the process of creating nfts, we look foward to study the developments of this sphere and how affects culture in general.
+- 👋 Hi, We are @nftartisan, a group of artist and cultural academics. In addition to see the process of creating nfts, we look foward to study the developments of this sphere and how affects culture in general.
 - 👀 I’m interested in crypto, paintings, 3D design, and representations of popular culture.
 - 🌱 We are currently learning how to create nfts on Cardano. Something totally new for us.
 - 💞️ We're looking to collaborate with other artist and know more about their perpectives.
